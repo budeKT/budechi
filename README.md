@@ -3,7 +3,7 @@
 - 🌱 I’m currently learning how to create my own apps and continuing to build my programming skills.
 - 💞️ I’m looking to collaborate on anything within my scope.
 - 📫 How to reach me: 
-- DISCORD: (budechige#6643)
+- DISCORD: budechige
 - EMAIL: universusmain@gmail.com
 
 <!---
