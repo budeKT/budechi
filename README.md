@@ -1,4 +1,4 @@
-- 👋 Hi, I’m @budechi AKA Kevin Tu
+- 👋 Hi, I’m @budeKT AKA Kevin Tu
 - 📫 How to reach me: 
 - DISCORD: budechige
 - EMAIL: tukevin274@gmail.com
